@@ -1,3 +1,10 @@
+[url]https://www.youtube.com/watch?v=6nwRSv7uWjQ[/url?] 
+r u sure it is an actual url, .?
+for i learned inmortality
+for studying an atom-point
+what's a pixel, bit of a bot? >:'(
+
+
 # 0multimatrixsysmodel
 
 afb08cf02dc8b47563d0c3bcad302a35936055217feae8bd1c5ac020e066dda4 
